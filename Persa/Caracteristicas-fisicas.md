@@ -2,12 +2,9 @@ Os persas são gatos muito procurados por pessoas que vivem em espaços pequenos
 
 Esse animal se caracteriza pela pelagem comprida e sedosa, com uma cabeça grande e redonda, orelhas pequenas e arredondadas com tufos de pelo no interior, olhos grandes e redondos de coloração vívida e patas curtas, porém musculosas. O padrão comum da raça apresenta focinhos achatados (flat face), porém alguns animais possuem focinhos um pouco mais alongados (doll face).
 
-
 Persa silver shaded
 A manutenção de sua pelagem é um muito trabalhosa, sobretudo devido a formação de nós ocorridos devido ao comprimento dos pelos.
 
-Gato da foto: IT*Anjelikatz Domino Dancing of Fascination
-Gato persa himalaio Ponta Vermelha
 O padrão de uma raça é determinado pelas associações que a representam. Assim sendo, existem pequenas variações de associação para associação. Abaixo podemos ver o padrão da FIFe (Federação Felina Internacional).
 
 Tamanho: Médio a Grande - Os machos são maiores que as fêmeas, com 4 a 5kg de massa, e as fêmeas, de 3 a 4kg.
